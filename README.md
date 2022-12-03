@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Andrew
-- 👀 I’m interested in nothing
+- 👀 I’m interested in @ℕ𝕚𝕔𝕜#9999 ❤️ :3333
 - 🌱 I’m currently learning Lua
-- 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me = dont reach me
+- 💞️ I’m looking to collaborate on <redacted>
+- 📫 Reach me on discord for no reason @𝔸𝕟𝕕𝕣𝕖𝕨#6586 :D
 
 <!---
 DesiredVisa/DesiredVisa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
