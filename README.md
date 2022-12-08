@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Andrew
-- 👀 I’m interested in @ℕ𝕚𝕔𝕜#9999 ❤️ :3333
+- 💞️ I’m Married to @ℕ𝕚𝕔𝕜#9999 ❤️ :3333
 - 🌱 I’m currently learning Lua
-- 💞️ I’m looking to collaborate on [redacted]
+- 👀 I’m looking to collaborate on [redacted]
 - 📫 Reach me on discord for no reason @𝔸𝕟𝕕𝕣𝕖𝕨#6586 :D
 
 <!---
